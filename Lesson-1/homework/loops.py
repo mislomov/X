@@ -1,4 +1,0 @@
-dncj
-dcndk
-dcndic
-dcnkdn
